@@ -19,3 +19,6 @@
 ![image alt](https://github.com/Mobven-Team3/DayStory-Android/blob/master/welcome_ss.png?raw=true) 
 
 ![image alt](https://github.com/Mobven-Team3/DayStory-Android/blob/master/add_ss.png?raw=true) 
+
+https://github.com/user-attachments/assets/c7781965-9e0c-4de8-aace-0d1da097669a
+
